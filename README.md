@@ -2,6 +2,7 @@
 - 👀 I’m interested in Computer Science and the Arts!
 - 🌱 I’m currently learning Java!
 - 📫 How to reach me via email: herrc748@gmail.com
+- Jack Was Here ☠
 ![image](https://github.com/user-attachments/assets/f7614903-a16b-4248-9b4f-defcdd3ad7cb)
 
 
